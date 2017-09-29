@@ -9,3 +9,4 @@
  - 2 Sticks of Celery
  - 75g Baby Spinach
  - 10ml Lemon or Lime Juice
+ - 300ml Water (+ Ice)
